@@ -6,7 +6,7 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
-<!https://www.facebook.com/liberty.harris.338?mibextid=9hbKrL4nuTL0nrRx-get in touch with her- get an appoiment with her, toxay at 11:30pm, 
+<!https://www.facebook.com/liberty.harris.338?mibextid=9hbKrL4nuTL0nrRx-get in touch with her- get an appoiment with her, today at 11:30pm, 
 CUBAN2004/CUBAN2004 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 -https://www.facebook.com/liberty.harris.338?mibextid=9hbKrL4nuTL0nrRx->
